@@ -1,1 +1,3 @@
 # johnkw.github.io
+
+<img width="578" height="1280" alt="image" src="https://github.com/user-attachments/assets/9a4be66b-33e2-4d9e-807e-beed885e6b37" />
